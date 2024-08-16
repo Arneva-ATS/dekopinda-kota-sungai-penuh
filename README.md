@@ -1,1 +1,1 @@
-# dekopinda-kota-sungai-penuh
+# dekopinda-karanganyar
